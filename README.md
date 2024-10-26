@@ -1,1 +1,0 @@
-# Meynardi_ParcialProg
